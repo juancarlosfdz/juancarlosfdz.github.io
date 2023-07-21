@@ -1,1 +1,0 @@
-# juancarlosfdz.github.io
